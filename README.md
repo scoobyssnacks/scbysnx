@@ -37,6 +37,12 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am always free to interact,ㅤ**so long**ㅤas you are 15+ and share interests
 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease feel free to int or add me on discord !!ㅤi love making new friendsㅤ: )
+
 ㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[( interests )](https://github.com/scoobyssnacks/interests)
