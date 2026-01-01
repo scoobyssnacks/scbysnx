@@ -28,7 +28,13 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( like this one )ㅤor ill stalk peoples ponies and send them crowns.
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi always try to respond to whispers when i can if you're still online and if
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi see them in time before i disconnectㅤㅤㅤ( ˊᵕˋ ; )
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am always free to interact,ㅤ**so long**ㅤas you are 15+ and share interests
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( interest list coming soon )
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![visit counter](https://komarev.com/ghpvc/?username=scoobyssnacks&color=8e4934&style=plastic)
