@@ -33,7 +33,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi always try to respond to whispers when i can if you're still online and if
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi see them in time before i disconnectㅤㅤㅤ( ˊᵕˋ ; )
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi see them in time before i disconnectㅤㅤㅤㅤㅤ( ˊᵕˋ ; )
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am always free to interact,ㅤ**so long**ㅤas you are 15+ and share interests
 
@@ -41,7 +41,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease feel free to int or add me on discord !!ㅤi love making new friendsㅤ: )
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease feel free to int or add me on discord !!ㅤi love making new friendsㅤㅤ⸜(｡˃ ᵕ ˂ )⸝
 
 ㅤㅤ
 
