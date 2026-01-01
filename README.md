@@ -34,7 +34,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am always free to interact,ㅤ**so long**ㅤas you are 15+ and share interests
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( interest list coming soon )
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[( interests )](https://github.com/scoobyssnacks/interests)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![visit counter](https://komarev.com/ghpvc/?username=scoobyssnacks&color=8e4934&style=plastic)
