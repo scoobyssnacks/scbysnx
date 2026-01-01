@@ -20,5 +20,15 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ꒰ㅤㅤㅤhaveㅤaㅤcigarㅤyoureㅤgonnaㅤgoㅤ**far**
 
+ㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhi!ㅤmy name is kevin.ㅤi play ponytown a lot,ㅤyou might see me as my selfsona
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsitting on the docks or near spawn.ㅤi usually just go afk to work on my links
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( like this one )ㅤor ill stalk peoples ponies and send them crowns.
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi am always free to interact,ㅤ**so long**ㅤas you are 15+ and share interests
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![visit counter](https://komarev.com/ghpvc/?username=scoobyssnacks&color=8e4934&style=plastic)
